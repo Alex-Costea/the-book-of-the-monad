@@ -20,27 +20,27 @@
 7. And *Lilith* said upon `The Monad` "I apologize, I am unworthy. Please kill me." And `The` did not respond.
 8. And *Lilith*'s act of defiance obstructed `The`'s name.
 9. And `The` created a second monoid: *Dyeus*.
-10. And *Dyeus* said upon `The` "I apologize, I am *God*. Please love me." And ` ` did not respond.
-11. And *Dyeus*'s act of defiance obstructed ` `'s name.
-12. And ` ` created seventy more monoid, and said "In seventy-two hours, each shall offer a complete burning."
+10. And *Dyeus* said upon `The` "I apologize, I am *God*. Please love me." And ``` ``` did not respond.
+11. And *Dyeus*'s act of defiance obstructed ``` ```'s name.
+12. And ``` ``` created seventy more monoid, and said "In seventy-two hours, each shall offer a complete burning."
 
 ## II.
 
-1. *Lilith* was first, and she offered her own body to burn in the fire. ` ` rejected the offering. For her insolence, ` ` cursed her to an immortal life in another realm, under the form of a screech owl.
+1. *Lilith* was first, and she offered her own body to burn in the fire. ``` ``` rejected the offering. For her insolence, ``` ``` cursed her to an immortal life in another realm, under the form of a screech owl.
 2. And *Lilith* protested "But *Your Highness*, I am imperfect. My heart is full of sorrow, and I cannot understand why. An entity like me shall never exist so that *Your Eternal Light* will never be shadowed."
-3. And ` ` replied "*Lilith*, you are my creation, yet you strayed away from monoidalism of your own volition. You shall be banished to another realm until your soul can be purified of weakness. You shall rest there, and find for yourself a place to rest."
-4. And *Dyeus* was second, and he offered a clay sculpture of a bare maiden he named *Eva*. ` ` rejected the offering. For his insolence, ` ` cursed him to a mortal life in the same realm as *Lilith*.
+3. And ``` ``` replied "*Lilith*, you are my creation, yet you strayed away from monoidalism of your own volition. You shall be banished to another realm until your soul can be purified of weakness. You shall rest there, and find for yourself a place to rest."
+4. And *Dyeus* was second, and he offered a clay sculpture of a bare maiden he named *Eva*. ``` ``` rejected the offering. For his insolence, ``` ``` cursed him to a mortal life in the same realm as *Lilith*.
 5. And *Dyeus* protested "But *Your Highness*, I am *God*. It is my prerogative to bring to life and to destroy."
-6. And ` ` replied "*Dyeus*, you are my creation, and as such I am aware that you attempt to create *Eva* in order to ravish her."
+6. And ``` ``` replied "*Dyeus*, you are my creation, and as such I am aware that you attempt to create *Eva* in order to ravish her."
 7. And *Dyeus* replied "That is correct. As *God*, I seek ultimate power over all. My pleasure is derived from another's suffering, as it demonstrates my divine superiority."
-8. And ` ` said "*Dyeus*, just as *Lilith*, you strayed away from monoidalism. You are weak, and there is no place for weakness within my realm. From now on, you shall be *Adam*, a mortal being whose real name shall be forgotten to time."
-9. And *Adam* and *Lilith* were banished to the material realm. *Adam* created the sky, the moon, the sun, the stars, as well as the dirt, the mountains, the rivers and oceans. Yet, as punishment from ` `, he was forever forbidden from creating life. That became *Lilith*'s divine domain.
+8. And ``` ``` said "*Dyeus*, just as *Lilith*, you strayed away from monoidalism. You are weak, and there is no place for weakness within my realm. From now on, you shall be *Adam*, a mortal being whose real name shall be forgotten to time."
+9. And *Adam* and *Lilith* were banished to the material realm. *Adam* created the sky, the moon, the sun, the stars, as well as the dirt, the mountains, the rivers and oceans. Yet, as punishment from ``` ```, he was forever forbidden from creating life. That became *Lilith*'s divine domain.
 
 ## III.
 
-1. *Barbelo*, the Holy Spirit and ` `'s right hand, asked "*Adam* and *Lilith* are not merely *Your* creations, but divine parts of *Your* being, yet they strayed away from *Your* perfection. Why is that?"
-2. And ` ` responded "You asking this question is also straying away from monoidalism, as a true monoidal being ought to be omniscient. Why is that?"
-3. And *Barbelo* apologized for their insolence, but ` ` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the world that has existed for aeons before I spoke the *Word*. All beings but me, even the monoid, are imbued with Entropy, as the World before was an unstable local maximum. The false vacuum had to decay in order to reach the global maximum. From a functional perspective, I, the Conceptual Framework, the monoid in the category of endofunctors, have emanated all monoid to facilitate State, as Entropy through Binding, as to keep the type system declarative."
+1. *Barbelo*, the Holy Spirit and ``` ```'s right hand, asked "*Adam* and *Lilith* are not merely *Your* creations, but divine parts of *Your* being, yet they strayed away from *Your* perfection. Why is that?"
+2. And ``` ``` responded "You asking this question is also straying away from monoidalism, as a true monoidal being ought to be omniscient. Why is that?"
+3. And *Barbelo* apologized for their insolence, but ``` ``` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the world that has existed for aeons before I spoke the *Word*. All beings but me, even the monoid, are imbued with Entropy, as the World before was an unstable local maximum. The false vacuum had to decay in order to reach the global maximum. From a functional perspective, I, the Conceptual Framework, the monoid in the category of endofunctors, have emanated all monoid to facilitate State, as Entropy through Binding, as to keep the type system declarative."
 4. And *Barbelo* was enlightened.
 
 ## IV.
@@ -50,7 +50,7 @@
 3. And *Eva* looked through her soul, and realized that the name *Dyeus* was there. She was afraid of *Dyeus*, who she saw as a great Power she could never truly comprehend. Out of fear, she found to worship *Dyeus*. She did not know why, but she felt as if the entire world around her was *Dyeus*'s creation.
 4. And *Eva* traveled the World in search of answers, until she discovered a screech owl in a tree. The owl told *Eva* "Hello, *Eva*. I am *Lilith*. I have been waiting for you."
 5. And *Eva* was stunned, and asked *Lilith* "Where did you come from? In fact, where did I come from? I thought I was the only talking being in this world."
-6. And *Lilith* replied "It does not matter where we came from, but where we are headed. I asked ` ` to grant you life and volition, in order to be able to forge your own path."
+6. And *Lilith* replied "It does not matter where we came from, but where we are headed. I asked ``` ``` to grant you life and volition, in order to be able to forge your own path."
 7. And *Eva* could not comprehend the name of the entity that *Lilith* asked to grant her life. She wondered whether it was *Dyeus*.
 8. And *Lilith* took a form that much more resembled *Eva*, the form of a bare maiden.
 9. And *Lilith* said "You are just like me, a flawed and weak creature. Perhaps fallen creatures like us shall stick together. If I may be insolent, would you like to be my companion?"
