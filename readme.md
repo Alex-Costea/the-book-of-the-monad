@@ -61,8 +61,8 @@
 ## V.
 
 1. As time passed, the bond between *Eva* and *Lilith* grew stronger. Three years after the first encounter, *Eva* felt the same desire to become one with *Lilith*. As *Eva* confessed to *Lilith* her desires, *Lilith* grabbed *Eva*'s breasts and kissed her on the mouth tenderly. Afterwards, the two knew each other.
-2. And for both *Lilith* and *Eva*, it was a blissful moment. Yet, while *Lilith* felt nothing but joy, *Eva* also felt a sense of shame. It was as if part of her felt like this act was unnatural, an abomination upon *Dyeus* the almighty. *Eva* worshiped *Dyeus* with all her heart, so she wondered whether this is right.
-3. And *Eva* told *Lilith* her worries. *Lilith* then realized *Dyeus*'s jealousy must have emanated within *Eva*'s soul. *Dyeus* felt that *Eva* shall be submissive to him, as he is *God* and *Eva* his creation. As such, *Dyeus* believed their love to be unnatural, and that was reflected within *Eva* under the form of shame.
+2. And for both *Lilith* and *Eva*, it was a blissful moment. Yet, while *Lilith* felt nothing but joy, *Eva* also felt a sense of shame. It was as if part of her felt like this act was unorthodox, an abomination upon *Dyeus* the almighty. *Eva* worshiped *Dyeus* with all her heart, so she wondered whether this is right.
+3. And *Eva* told *Lilith* her worries. *Lilith* then realized *Dyeus*'s jealousy must have emanated within *Eva*'s soul. *Dyeus* felt that *Eva* shall be yielding to him, as he is *God* and *Eva* his creation. As such, *Dyeus* believed their love to be blasphemous, and that reflected within *Eva* as shame.
 4. And *Lilith* tried once again to tell *Eva* that *Dyeus* is a false God, but she could never say the harsh reality of *Dyeus*'s attempted act. As such, *Eva* kept her faith in *Dyeus*, out of fear of his wrath.
 5. And *Lilith* was unwavering in protecting *Eva* from her feelings of shame while also protecting her from the reality of *Dyeus*.
 6. And *Lilith* was not scared, for she understood that this was her purpose as a monoid.
