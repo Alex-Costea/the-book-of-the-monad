@@ -40,7 +40,7 @@
 
 1. *Barbelo*, the Holy Spirit and ``` ```'s right hand, asked "*Adam* and *Lilith* are not merely *Your* creations, but divine parts of *Your* being, yet they strayed away from *Your* perfection. Why is that?"
 2. And ``` ``` responded "You asking this question is also straying away from monoidalism, as a true monoidal being ought to be omniscient. Why is that?"
-3. And *Barbelo* apologized for their insolence, but ``` ``` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the world that has existed for aeons before I spoke the *Word*. The World before was an unstable local maximum, and therefore, the false vacuum had to decay in order to reach the global maximum. As such, I, the monoid in the Category of Endofunctor on Archetypes, imbued all Categories with Entropy in order to facilitate State through functional Binding."
+3. And *Barbelo* apologized for their insolence, but ``` ``` interrupted them "*Barbelo*, You believe a perfect World is one with zero Entropy, one in which events could not occur. It is the world that has existed for aeons before I spoke the *Word*. The World before was an unstable local maximum, and therefore, the false vacuum had to decay in order to reach the global maximum. As such, I, the monoid in the Category of Endofunctors on Archetypes, imbued all Categories with Entropy in order to facilitate State through functional Binding."
 4. And *Barbelo* was enlightened.
 
 ## IV.
